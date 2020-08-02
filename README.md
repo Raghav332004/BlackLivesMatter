@@ -1,0 +1,2 @@
+# BlackLivesMatter
+In light of the current events, we have created a filter that unifies all those who support the colored communities and individuals, and those who have faced experienced discrimination due to their skin color. We want to remind the people about the ideals of the free world and free America. It is important to commemorate the fact that during this tough time we have to live in harmony and support those who are in need.
